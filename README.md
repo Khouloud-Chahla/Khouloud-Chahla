@@ -4,7 +4,7 @@
 
 - 🔭 I’m interested in engineering 👷‍♀️
 - 🌱 I’m currently learning everything ✨
-- 🥅 2023 Goals: Learning Testing & Web data processing 😼
+- 🥅 2023 Goals: Working more 😼
 - ⚡ Fun fact: I'm learning how to earn money by sleeping 💰
 
 ### Connect with me:
